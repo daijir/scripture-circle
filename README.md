@@ -1,1 +1,1 @@
-# personal-development
+# scripture circle
